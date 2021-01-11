@@ -11,15 +11,15 @@ __Youtube Kanal __  🔗 **[Youtube](https://youtube.com/channel/UCOdhrwt2fvNDTx
 
 **2- İzinsiz Paylaşılması Kesinlikle Yasaktır!**
 
-**3- Rütbe Komutları Kanal Ayarlama Komutları İD' ile Çalışıyor! **
+**3- Rütbe Komutları Kanal Ayarlama Komutları İD' ile Çalışıyor!**
 
 **4- Olası Bir Durumda Destek Sunucumuz Olan [Tıkla](https://discord.gg/4CjSpF85ca) gelebilirsiniz!**
 
-**5- Altyapıda 'ki Her Komut Denendi Ve Çalıştığını Sağladım Bundan dolayı Bozuk veya Hatalı Komut Yoktur!  **
+**5- Altyapıda 'ki Her Komut Denendi Ve Çalıştığını Sağladım Bundan dolayı Bozuk veya Hatalı Komut Yoktur!**
 
-**6- Altyapı Tamamıyla v12 dir ve sizler İçin Yapılmıştır! **
+**6- Altyapı Tamamıyla v12 dir ve sizler İçin Yapılmıştır!**
 
-**7- Altyapıda 'ki !davet-kanal komutu !ayarlar Channel kanalid şeklinde de çalışıyor!  **
+**7- Altyapıda 'ki !davet-kanal komutu !ayarlar Channel kanalid şeklinde de çalışıyor!**
 
 **8- Daha Fazla Altyapı Gelmesini İstiyorsanız Like ve Yorum Atarak destek olabilirsiniz!**
 
